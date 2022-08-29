@@ -1,0 +1,2 @@
+# Ulugbek
+Portfoliya sayitim
